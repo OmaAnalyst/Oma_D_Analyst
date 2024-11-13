@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Oma_D_Analyst,
-I'm a Data Analytics and keenly interested in continuous growth - 👀
+I'm a Data Analyst and keenly interested in continuous growth - 👀
 I'm currently learning all the necessary skills to become a data analyst expert-
 ozoenecynthia@gmail.com 📫-
 She- 😄
